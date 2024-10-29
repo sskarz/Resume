@@ -5,6 +5,6 @@ sanskar1016pro@outlook.com
 # Phone Number
 626 833 7629
 # My Website
-https://sanskarfolio.com
+https://www.sanskarfolio.com
 # Linkedin
 https://www.linkedin.com/in/sanskar-thapa/
