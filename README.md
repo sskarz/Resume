@@ -1,5 +1,5 @@
 # Resume
-My current resume in 2024. Contact me through these methods.
+My current resume in 2025. Contact me through these methods.
 # Email
 sanskar1016pro@outlook.com
 # Phone Number
